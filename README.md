@@ -1,0 +1,2 @@
+# moj-kraj-novagorica
+PRESTAVITEV MOJEGA KRAJA-NOVA GORICA
